@@ -1,1 +1,2 @@
-Welcome to the website
+Follow my socials:
+https://twitter.com/TimFNLeaks
